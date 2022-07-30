@@ -1,0 +1,1 @@
+if you destroy anyone system you are on ur own
